@@ -1,4 +1,4 @@
-#  
+#  blue lock rivals ultimate Scripts offers the most advanced blue lock rivals Script, with fly and private server access. Perfect for dominating any
 
 
 
